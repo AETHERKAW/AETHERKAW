@@ -1,1 +1,1 @@
-VERITASX
+Vyxara
